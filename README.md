@@ -4,4 +4,4 @@ If you actually bothered to read this, you just have to say that the codeword is
 
 ## Update:
 
-It is November 2025 and no recruiter has looked at this yet.
+It is December 2025 and no recruiter has looked at this yet.
